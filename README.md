@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JB198203
-- 👀 I’m interested in every cool things
+- 👀 I’m interested in every cool things like starships or rainbow colored unicorns
 - 🌱 I’m currently learning code/learning developpement
 - 💞️ I’m looking to collaborate on super apps /games / programs
 - 📫 How to reach me ... send me an email at jborlicki@gmail.com
